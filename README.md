@@ -10,4 +10,4 @@
 
 这些平台汇聚了丰富的一级特黄AAA大片在线观看资源，内容多样，更新及时，分类详细，方便用户快速查找。每个视频页面包含影片时长、主演及清晰度等详细信息，支持高清视频播放，并根据网络环境自动优化画质，保证流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu20250710 ）</span>
